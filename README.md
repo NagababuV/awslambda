@@ -58,7 +58,7 @@ Edit
     ]
 }
 ![Screenshot 2025-03-02 at 11 58 25 AM](https://github.com/user-attachments/assets/aa119b74-7b0f-4be9-a695-eb54367fbaf1)
-![Uploading Screenshot 2025-03-02 at 12.00.10 PM.png…]()
+![Screenshot 2025-03-02 at 12 00 10 PM](https://github.com/user-attachments/assets/45750fff-90b9-4353-8161-44fc09f370d0)
 
 
 
